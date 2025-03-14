@@ -1,1 +1,0 @@
-# Skillup9aija-quiz-
